@@ -1,1 +1,1 @@
-# seeeeyouuuu.github.love
+# seeeeyouuuu.github.io
